@@ -167,3 +167,6 @@ Juki nozzle tool holder for pnp user manual
 
 如果不知道我家淘宝店在哪里，可以在淘宝首页搜索关键字"**高精度juki吸嘴快拆连接器铜套座**", 点击商品页面进入，如果看到店家是"**太原科润广原**"，就找到我公司淘宝店了。在淘宝首页，直接搜店铺"**太原科润广原**"亦可.
 
+## 产品购买连接
+
+[https://item.taobao.com/item.htm?spm=a21dvs.23580594.0.0.4fee2c1bNLDle8&ft=t&id=1010034112339](https://item.taobao.com/item.htm?spm=a21dvs.23580594.0.0.4fee2c1bNLDle8&ft=t&id=1010034112339)
